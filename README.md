@@ -1,1 +1,1 @@
-# update 123 adf boom! FFF! test! BAGA! aki uji shyoko nanami
+# update 123 adf boom! FFF! test! BAGA! aki uji shyoko minami himeji
